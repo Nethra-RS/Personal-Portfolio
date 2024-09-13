@@ -5,5 +5,5 @@
 
 💙 
 
-![preview img](/preview.png)
+
 
